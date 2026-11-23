@@ -1,6 +1,6 @@
 # Hi, I'm Doris Kalagbor Chihurumnanya 👋
 
-**Fashion Designer | Software Development Enthusiast | AI Engineering Learner**
+**Business Administration (4 years) | Fashion Designer | Software Development Enthusiast | AI Engineering Learner**
 
 📍 Port Harcourt, Rivers State, Nigeria
 📧 [Doriskalagbor200@gmail.com](mailto:Doriskalagbor200@gmail.com)
